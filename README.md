@@ -1,1 +1,2 @@
-# Cv![Uploading İsimsiz video ‐ Clipchamp ile yapıldı.gif…]()
+# Cv
+![Uploading İsimsiz video ‐ Clipchamp ile yapıldı.gif…]()
